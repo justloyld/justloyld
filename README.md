@@ -1,1 +1,1 @@
-I'm a person, I just do stuff
+We are a collective, we do stuff :3
